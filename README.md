@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RikkiRikkii
-- 👀 I’m interested in your penis
+- 👀 I’m interested in you~♥
 - 🌱 I’m currently learning how to consume H2O
 - 💞️ I’m looking to collaborate on nothing actually 
 - 📫 How to reach me: dont, thanks
